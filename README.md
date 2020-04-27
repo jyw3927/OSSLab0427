@@ -1,1 +1,1 @@
-GET rid of CORONA!!
+Have a good time
